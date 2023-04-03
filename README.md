@@ -1,4 +1,5 @@
 ### Hi there 👋
+### Im new here, give me some time to learn things around me, then ill let you know what I'm workimg on... or unless, you can recruit me in your army to save the world. 
 
 <!--
 **mjestillore/mjestillore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
